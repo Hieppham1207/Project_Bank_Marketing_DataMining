@@ -65,6 +65,8 @@ III. CÁC YẾU TỐ ẢNH HƯỞNG ĐẾN MỞ SỔ TIẾT KIỆM
 
 
 IV. TỔNG KẾT
+
+
 Từ các phân tích và đánh giá dựa trên dữ liệu của chiến dịch Marketing đã thực hiện, cho thấy việc thực hiện tiếp thị của ngân hàng cho toàn bộ khách hàng thuộc mọi đối tượng tuổi tác, ngành nghề, kéo dài trong suốt cả một năm...là không hiệu quả. 
 
 Để cải thiện và nâng cao hiệu quả cho chiến dịch Marketing sắp tới ngân hàng nên lưu ý một số đề xuất như sau:
